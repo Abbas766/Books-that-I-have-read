@@ -1,6 +1,6 @@
 # Books that I want to read  
 **List of some books that I plan to read**  
-
+![Men pulling a big bookshelf with lots of books from a library](https://media.giphy.com/media/YGlRW1Am9q7e0/giphy.gif)  
 **Classics**
 > 1. The Republic - Plato 
 > 2. Paradise Lost - John Milton
