@@ -62,6 +62,11 @@
 > 32. A Guide to the Good Life - William B. Irvine
 > 33. Ego is the Enemy - Ryan Holiday
 > 34. At the Existentialist Cafe - Sarah Bakewell
+> 35. Leonardo da Vinci - Walter Isaacson
+> 36. Everything Happens for a Reason and Other Lies I’ve Loved - Kate Bowler.
+> 37. Lincoln in the Bardo - George Saunders
+> 38. Origin Story: A Big History of Everything - David Christian.
+> 39. Factfulness - Hans Rosling,Ola Rosling and Anna Rosling Ronnlund
 
 
 
