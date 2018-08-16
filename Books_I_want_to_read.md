@@ -9,7 +9,7 @@
 > 1. Good to Great: Why Some Companies Make the Leap and Others Don't - Jim Collins
 > 2. The Effective Executive: The Definitive Guide to Getting the Right Things Done - Peter F. Drucker
 > 3. Rich Dad, Poor Dad - Robert Kiyosaki
-> 4. How to Win Friends and Influence People - Dale Carnegie
+> 4. How to Win Friends and Influence People - Dale Carnegie (Read)
 > 5. The Power of Now - Eckhart Tolle
 > 6. Start with Why - Simon Sinek
 > 7. The Millionaire Fastlane - M. J. DeMarco
@@ -22,6 +22,7 @@
 > 14. Crush It! - Gary Vaynerchuk
 > 15. Smarter Faster Better - Charles Duhigg
 > 16. How to Fail at Almost Everything and Still Win Big: Kind of the Story of My Life - Scott Adams
+> 17. The Power of Your Subconscious Mind - Joseph Murphy (Read)
 
 **Science Fiction**
 > 1. But What If We're Wrong? - Chuck Klosterman
@@ -31,7 +32,7 @@
 > 1. The Book on the taboo against knowing who you are - Alan Watts
 > 2. Meditations - Marcus Aurelius
 > 3. Fahrenheit 451 - Ray Bradbury
-> 4. The Alchemist - Paulo Coelho
+> 4. The Alchemist - Paulo Coelho (Read)
 > 5. Mindset - Carol Dweck
 > 6. Sapiens by Yuval Noah Harari
 > 7. The Miracle Morning - Hal Elrod
