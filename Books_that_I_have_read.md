@@ -8,4 +8,5 @@
 > 5. [HHow to Win Friends and Influence People](https://en.wikipedia.org/wiki/How_to_Win_Friends_and_Influence_People) - Daniel Carnegie 
 > 6. [The Alchemist](https://www.pdfdrive.com/the-alchemist-by-paulo-coelho-e19035550.html) - Paulo Coelho
 > 7. [A Wizard of Earth Sea](https://www.goodreads.com/book/show/13642.A_Wizard_of_Earthsea) - Ursula K. Le Guin (Currently reading)
-> 8. [The Power of Your Subconscious Mind](https://www.law-of-attraction-haven.com/support-files/power-subconscious-mind.pdf) - Joseph Murphy
+> 8. [The Power of Your Subconscious Mind](https://www.law-of-attraction-haven.com/support-files/power-subconscious-mind.pdf) - Joseph Murphy (Currently reading)
+> 9. [Elon Musk: Tesla, SpaceX, and the Quest for a Fantastic Future](http://v1x0r.com/downloads/Books/Elon_Musk/Ashlee%20Vance%20-%20Elon%20Musk%3B%20Tesla,%20SpaceX,%20and%20the%20Quest%20for%20a%20Fantastic%20Future.pdf) - Ashlee Vance (Currently reading)
