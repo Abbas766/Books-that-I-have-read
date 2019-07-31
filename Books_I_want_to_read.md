@@ -68,6 +68,7 @@
 > 37. Lincoln in the Bardo - George Saunders
 > 38. Origin Story: A Big History of Everything - David Christian.
 > 39. Factfulness - Hans Rosling,Ola Rosling and Anna Rosling Ronnlund
+> 40. A White Trail: Minorities in Pakistan Paperback – Haroon Khalid
 
 
 
